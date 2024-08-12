@@ -1,9 +1,4 @@
 
-
-
-
-## I'm Utkarsh Sharm 
-
 ### 💻 &nbsp;  Doing This for a passion and a living!
 
 <br>
