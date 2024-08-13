@@ -1,5 +1,5 @@
 
-### 💻 &nbsp;  Doing This for a passion and a living!
+### 💻 &nbsp;  Doing this for passion and a living!
 
 <br>
 
